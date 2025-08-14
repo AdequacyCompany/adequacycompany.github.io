@@ -1,1 +1,1 @@
-# AdequacySystemsGithubPages
+# Adequacy Company
